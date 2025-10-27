@@ -1,0 +1,1 @@
+currently a PhD researcher in the Department of Design at Brunel University of London. She holds a Master’s degree from the University of Leeds. research interests include health communication design, visual design for elderly audiences, and health product marketing on short video platforms
